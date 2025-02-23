@@ -1,8 +1,7 @@
 <div align="center">
   
- ![image](https://github.com/user-attachments/assets/f950de09-7931-40e6-a3ba-9327d37664d1)
-  
-𝖼𝗎𝗋𝗋𝖾𝗇𝗍𝗅𝗒 𝗈𝗇 𝗐𝗂𝗉 ^_^<br><br>
+ ![image](https://github.com/user-attachments/assets/f950de09-7931-40e6-a3ba-9327d37664d1)<br>
+  𝖼𝗎𝗋𝗋𝖾𝗇𝗍𝗅𝗒 𝗈𝗇 𝗐𝗂𝗉 ^_^<br><br>
 ⌗ ◟ hii!! im a very friendly user, i enjoy starting conversations and i may talk alot about my opinions and my interests ..<br><sub>⋮ ( i espeically enjoy talking bout   PHIGHTING ! and forsaken_ : 3 )<sub>
 <br>
 
