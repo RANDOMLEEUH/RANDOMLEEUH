@@ -14,4 +14,4 @@ C+H is VERY couraged ! ! ill feel even more comforted if both our are skins are 
 ⸝⸝ ★ ⸝⸝
 <br><br>
 <sub>go check out mt pages 4 more info about me ! ! ⌣⌣
-<br>⌣⌣ ◟ also PLS PLS DRAW THINGD ON MY STRAWPAGE ID BE SO HAPPY ! !<sub>
+
