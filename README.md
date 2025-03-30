@@ -3,7 +3,7 @@
 ![image](https://github.com/user-attachments/assets/2f75ed16-e12d-4517-ad89-77d30d4fb7fa)
 
  ⸝⸝ ★ ⸝⸝<br><br>
-_⌗ ◟ greetings. im a very friendly user, i enjoy starting conversations and i may talk alot. .<br><sub>⋮ ( i espeically enjoy talking bout   PHIGHTING ! or jus stuff in gen. : 3 )<sub>_
+_⌗ ◟ greetings. im a very friendly user, i enjoy starting conversations and i may talk alot. <br><sub>⋮ ( i espeically enjoy talking bout   PHIGHTING ! or jus stuff in gen. : 3 )<sub>_
 <br><br>
 
 C+H is VERY couraged. id rather feel even more comforted if both our are skins are related to eachother. : 33<br>(𝗅𝗈𝗋𝖾 𝗐𝗂𝗌𝖾, 𝗈𝗋 𝖾𝗏𝖾𝗇 𝗃𝗎𝗌𝗍 𝖺 𝗌𝗁𝗂𝗉. ^_^)
