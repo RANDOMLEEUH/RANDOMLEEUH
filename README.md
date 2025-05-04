@@ -1,8 +1,8 @@
 <div align="center">
   
-![image](https://github.com/user-attachments/assets/2f75ed16-e12d-4517-ad89-77d30d4fb7fa)
+![image](https://github.com/user-attachments/assets/572c684c-55c0-41a9-90f4-745834ecdcda)
 
- ⸝⸝ ★ ⸝⸝<br><br>
+ ⸝⸝ ✧ ⸝⸝<br><br>
 _⌗ ◟ greetings. im a very friendly user, i enjoy starting conversations and i may talk alot. <br><sub>⋮ ( i espeically enjoy talking bout   PHIGHTING ! or jus stuff in gen. : 3 )<sub>_
 <br><br>
 
@@ -14,6 +14,6 @@ C+H is VERY couraged. id feel rather more comforted if both our are skins are re
 
 _**Reminder that if we don't interact enough after some time, i WILL unfriend you . Apolagies in advance .**_
 
-⸝⸝ ★ ⸝⸝
+⸝⸝ ✧ ⸝⸝
 <br><br>
 _<sub>ty for reading < 3<sub>_
