@@ -1,8 +1,7 @@
 <div align="center">
   
 ![Untitled1774_20250623090954](https://github.com/user-attachments/assets/564cd0a0-c2c0-410c-816d-3ecab1bedc1d)
-
- ⸝⸝ ✧ ⸝⸝<br><br>
+⸝⸝ ✧ ⸝⸝<br>
 _⌗ ◟ greetings. im a very friendly user, i enjoy starting conversations and i may talk alot. <br><sub>⋮ ( i espeically enjoy talking bout   PHIGHTING ! or jus stuff in gen. : 3 )<sub>_
 <br><br>
 
