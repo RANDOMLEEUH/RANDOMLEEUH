@@ -8,8 +8,8 @@ Current interests are **F**ORSAKEN , **PH**IGHTING , **ROBLOX MEDIA**,(especiall
 <br><br>✿<br><br>
 ⌗ ◟ _i'm very careful in filterin my words and to be comfortable around ,<br>𝗍𝗁𝗈𝗎𝗀𝗁 please 𝗐𝗁𝗂𝗌𝗉𝖾𝗋 𝗂𝖿 𝗂 𝗌𝖺𝗂𝖽 𝗌𝗈𝗆𝖾𝗍𝗁𝗂𝗇 𝗍𝗁𝖺𝗍 𝗆𝖺𝖽𝖾 𝗒𝗈𝗎 𝗎𝗇𝖼𝗈𝗆𝖿𝗒 𝗂𝗇 𝗌𝗈𝗆𝖾 𝗐𝖺𝗒 !_ 
 <br><br>
-_<sub>**Reminder that if we don't interact enough after some time,<br>i WILL unfriend you . Apolagies in advance .**_
+_<sub>**Reminder that if we don't interact enough after some time,<br>i WILL unfriend you . I'm sorry .**_
 
 ⸝⸝ ୨ৎ ⸝⸝
 <br><br>
-_<sub>ty for reading < 3<sub>_
+_<sub>ty for reading <3<sub>_
