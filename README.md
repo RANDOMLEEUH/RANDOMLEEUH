@@ -1,6 +1,5 @@
 <div align="center">
   
- <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/e5add564-8f1e-4f5c-9b8f-4aefa6dc2fc0" />
 ⸝⸝ ☆ ⸝⸝<br>
 _⌗ ◟ greets ! im a very friendly user, dont hesistate to int !<br>c*h is very encouraged!<br><sub>Dn't mind if its a ship or lore related!_ ^_^
 <br><br>
