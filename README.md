@@ -18,5 +18,8 @@ _⸝⸝ ୨ৎ ⸝⸝_
 <br><br>
 _<sub>ty for reading <3<sub>_
 
+<sub>![image](https://github.com/user-attachments/assets/86ae54af-ddb2-4056-a8e8-f34e558a10d4) ![image](https://github.com/user-attachments/assets/44f2c44d-2d23-43b2-bf32-0ff218605694)<sub>
+
+
 
 
