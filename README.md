@@ -8,7 +8,7 @@
 <sub>*♡ 𝚏𝚘𝚛 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗 ! ♡*<sub>
   
 ⸝⸝ ☆ ⸝⸝<br>
-୨ৎ ◟ _greets ! im a very friendly user, dont hesistate to int !<br>c*h is very encouraged!<br><sub>Dn't mind if its a ship or lore related!_ ^_^
+୨ৎ ◟ _hiiii ! im a very friendly user, dont hesistate to int !<br>c*h is very encouraged!<br><sub>Dn't mind if its a ship or lore related!_ ^_^
 <br><br>
 Current interests are **F**ORSAKEN , **PH**IGHTING , **ROBLOX MEDIA**,(especially in admins) **E**CT!<br>feel free to talk to me about the topic : 3
 <br>![IMG_3949](https://github.com/user-attachments/assets/37f67a7e-4188-47af-a021-9b00a3ecc6db)<br>
