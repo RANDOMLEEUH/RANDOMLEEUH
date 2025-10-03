@@ -1,7 +1,7 @@
 <div align="left">
 <br>
 
-_hi : 3 come int with me if youd like !!!_
+_hi :- 3 come int with me if youd like !!!_
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/f48b0d7e-afed-45ff-8be3-6b7079bff7ea" />
 <br>I USE **HE/HIM** AND **MASC TERMS**, USE THEM  !!!!<br><br> interests are phighting, forsaken, seildirectory and likely others! (VERY MAINLY roblox junk) <br>pleasee int or c+h if you like any smiles.. i heart meating new people<br><br> > _C+H IS WELCOMED FOR ANYONE !!! i lava company.. IDM SHIP RELATED_ ^_^
 <div align="center">
