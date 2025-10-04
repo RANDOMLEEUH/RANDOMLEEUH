@@ -7,7 +7,18 @@ _hi :- 3 come int with me if youd like !!!_
 
 <img width="100" height="100" alt="0" src="https://github.com/user-attachments/assets/19ecec75-e3da-4fd5-8411-2d64df98d01a" />
 
- interests are phighting, forsaken, seildirectory and likely others! (VERY MAINLY roblox junk) <br>pleasee int or c+h if you like any smiles.. i heart meating new people<br><br> > _C+H IS WELCOMED FOR ANYONE !!! i lava company.. IDM SHIP RELATED_ ^_^
+ interests are phighting, forsaken, seildirectory, VRchat and likely others! (VERY MAINLY roblox junk) <br>pleasee int or c+h if you like any smiles.. i heart meating new people<br> <br> > _C+H IS WELCOMED FOR ANYONE !!! i lava company.. IDM SHIP RELATED_ ^_^
+
+ __BYI/BTW ⤵__
+ <br>
+* i have a weird tendency where i remove people 
+<br>i dont know enough/havent interacted enough,<br> im trying to work on that !!!
+<br><br>
+* i  will nawtt give out my discord or instagram if i just met you,<br>maybe until a week later i can : )
+<br><br> 
+* IM OKAY WITH FREAKY JOKES AND STUFF! IM MUTUAL WT IT <br> ill let you know if i change my mind( AND VICE VERSA)
+
+
 <div align="center">
   
 <br><br><br><br><img width="700" height="700" alt="image" src="https://github.com/user-attachments/assets/2b0d805b-fe27-4f91-ae1c-6507fc5c7dd2" /><br>me and who yo...
