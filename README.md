@@ -19,7 +19,7 @@ _hi :- 3 come int with me if youd like !!!_
 
 * i  will nawtt give out my discord or instagram if i just met you,<br>maybe until a week later i can :- )
 
-* PLEASE REFRAIN YOURSELF FROM SUGGESTIVE JOKES N STUFF!<br>ATLEAST TELL ME BEFOREHAND.<br>i am okay with platonic affection, it is mutual!
+* PLEASE REFRAIN YOURSELF FROM **SUGGESTIVE JOKES** N STUFF!<br>ATLEAST TELL ME BEFOREHAND.<br>i am okay with platonic affection, *it is mutual*!
 
 * I am some kind of **othekin**, if there is _"me"_ or _"kin"_ on my pony's name<br>it means i kin and identify as that character !<br>i dont mind doubles ^_^
 
@@ -28,7 +28,7 @@ _hi :- 3 come int with me if youd like !!!_
 
 
 
-<br>lele check out my prns.cc if you'd like :- D
+<br>lele check out my prns.cc for more stuff :- D
 <div align="center">
 
   
