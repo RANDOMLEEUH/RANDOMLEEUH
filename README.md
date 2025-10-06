@@ -19,7 +19,7 @@ _hi :- 3 come int with me if youd like !!!_
 
 * i  will nawtt give out my discord or instagram if i just met you,<br>maybe until a week later i can :- )
 
-* IM OKAY WITH FREAKY JOKES AND STUFF, IM MUTUAL WT IT ! <br> ill let you know if i change my mind( AND VICE VERSA)
+* PLEASE REFRAIN YOURSELF FROM SUGGESTIVE JOKES N STUFF!<br>ATLEAST TELL ME BEFOREHAND.<br>i am okay with platonic affection, it is mutual!
 
 * I am some kind of **othekin**, if there is _"me"_ or _"kin"_ on my pony's name<br>it means i kin and identify as that character !<br>i dont mind doubles ^_^
 
