@@ -26,7 +26,6 @@
 
 * i use tone tags, like aLot !
 </details>
-
 <div align="center">
 <br><br><br><br><br><br><br><br><br>
 <img width="700" height="700" alt="image" src="https://github.com/user-attachments/assets/2b0d805b-fe27-4f91-ae1c-6507fc5c7dd2" /><br>me and who yo...
