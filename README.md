@@ -12,7 +12,7 @@ _hi :- 3 come int with me if youd like !!!_
 
  interests are phighting, forsaken, seildirectory, VRchat and likely others! (VERY MAINLY roblox junk) <br>pleasee int or c+h if you like any smiles.. i heart meating new people<br> <br> > _C+H IS WELCOMED FOR ANYONE !!! i lava company.. IDM SHIP RELATED_ ^_^
  
-<img width="100" height="669" alt="GnIpmzJW0AAjD_X-removebg-preview" src="https://github.com/user-attachments/assets/f6aa1424-859c-4e11-b162-e7f30cc0dd60" /> __BYI/BTW ⤵__ 
+<img width="100" height="669" alt="Untitled1823_20251006145954" src="https://github.com/user-attachments/assets/6155b817-7561-4d58-8f0a-d9533d366dc7" /> __BYI/BTW ⤵__ 
  <br>
 * i have a weird tendency where i remove people 
 <br>i dont know enough/havent interacted enough,<br> im trying to work on that !!!
