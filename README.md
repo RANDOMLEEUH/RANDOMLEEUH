@@ -9,7 +9,7 @@
 <br>I USE **HE/HIM** AND **MASC TERMS**, USE THEM  !!!!<br>
 
 
- interests are phighting, forsaken, seildirectory, VRchat and likely others! (VERY MAINLY roblox junk) <br>pleasee int or c+h if you like any smiles.. i heart meating new people<br> <br> > _C+H IS WELCOMED FOR ANYONE !!! i lava company.. IDM SHIP RELATED_ ^_^
+ > interests are phighting, forsaken, seildirectory, VRchat and likely others! (VERY MAINLY roblox junk) <br>pleasee int or c+h if you like any smiles.. i heart meating new people<br> <br> > _C+H IS WELCOMED FOR ANYONE !!! i lava company.. IDM SHIP RELATED_ ^_^
 <br><br>
 
 <details> 
