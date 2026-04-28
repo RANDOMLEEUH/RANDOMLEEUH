@@ -1,4 +1,4 @@
-<div align="right">
+<div align="left">
   
 $\text{\color{#73879c} my name is ivan , or just Spadey ! }$
 <br>  $\text{\color{#73879c} he , him + masc . }$
