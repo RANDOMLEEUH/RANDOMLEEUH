@@ -5,7 +5,7 @@
 <div align="left">
 
   
-$\text{\color{#73879c} my name is ivan + oth names , or just Spadey ! }$
+$\text{\color{#73879c} my names gonna depend what i tell you! im normally isaac though : 3 }$
 <br>  $\text{\color{#73879c} he , him + neos , masc terms . }$
 <br> $\text{\color{#73879c}     im alterhuman bunnykin + dogmasc !  }$
 
