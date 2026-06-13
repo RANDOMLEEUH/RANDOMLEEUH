@@ -9,8 +9,7 @@ $\text{\color{#73879c} my names gonna depend what i tell you! im normally isaac 
 <br>  $\text{\color{#73879c} he , him + neos , masc terms . }$
 <br> $\text{\color{#73879c}     im alterhuman bunnykin + dogmasc !  }$
 
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/9e6c509d-a92c-4784-a876-15a4eced484f" />
-
+<img width="207" height="114" alt="image" src="https://github.com/user-attachments/assets/b322418e-3cbb-46a7-8151-c8919db73210" />
 
 
 $\text{\color{#73879c} c+h encouraged + character dynamic related : )  }$
