@@ -27,3 +27,7 @@ $\text{\color{#73879c} also PLEASE int if you know solarballs. i need this  }$
 
 <br>
 this is <a href="https://github.com/mimistarZz" target="_blank">mimi</a> , say hi !
+
+
+<br><nr>
+hey. i love neptune. you like neptune? look at my <a href="https://myneptunecorner.straw.page" target="_blank">strawpage</a>!! its filled and dedicated with my art and analization of neptune!
