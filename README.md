@@ -19,3 +19,11 @@ $\text{\color{#73879c} im a little nervous, i do enjoy having company < 3  }$
 $\text{\color{#73879c} I LIKE STUFF! ask me stuff plzz.  }$
 <br>
 $\text{\color{#73879c} also PLEASE int if you know solarballs. i need this  }$
+
+
+<div align="center">
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/13925e31-e74d-4c22-97ae-829c262ed277" />
+
+<br>
+this is <a href="https://github.com/mimistarZz" target="_blank">mimi</a> , say hi !
