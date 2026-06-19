@@ -31,3 +31,6 @@ this is <a href="https://github.com/mimistarZz" target="_blank">mimi</a> , say h
 
 <br><nr>
 hey. i love neptune. you like neptune? look at my <a href="https://myneptunecorner.straw.page" target="_blank">strawpage</a>!! its filled and dedicated with my art and analization of neptune!
+<br>
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/aec76c64-858d-4283-ae7d-f96e377e6cca" />
+
