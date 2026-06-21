@@ -30,15 +30,19 @@ this is <a href="https://github.com/mimistarZz" target="_blank">mimi</a> , say h
 
 
 <br><nr>
-$\text{\color{#ffffff} - hey. i love neptune. you like neptune? look at my }$ <a href="https://myneptunecorner.straw.page" target="_blank">strawpage</a> $\text{\color{#ffffff} !! its filled and dedicated with my art and analization of neptune smiles }$
+$\text{\color{#ffffff} - hey. i love neptune. you like neptune? look at my }$ <a href="https://myneptunecorner.straw.page" target="_blank">strawpage</a> $\text{\color{#ffffff} !! }$ 
 <br>
-<div align="left">
-  
+$\text{\color{#ffffff}its filled and dedicated with my art and analization of neptune smiles }$
+<br>
+<sp>
 $\text{\color{#7DADE8} strawpage last updated :  }$  $\text{\color{#ffffff} 6.20.26  }$
+<sp/>
 
 <div align="center">
 <br>
+
 <img width="1080" height="595" alt="image" src="https://github.com/user-attachments/assets/d7228b3a-fc30-4c5f-8333-4428924863c0" />
+
 <br>
   
 $\text{\color{#7397fa} - theres sooo many friendly faces!  }$
