@@ -35,7 +35,7 @@ $\text{\color{#ffffff} - hey. i love neptune. you like neptune? look at my }$ <a
 $\text{\color{#ffffff}its filled and dedicated with my art and analization of neptune smiles }$
 <br>
 <sp>
-$\text{\color{#7DADE8} strawpage last updated :  }$  $\text{\color{#ffffff} 6.20.26  }$
+$\text{\color{#7DADE8} strawpage last updated :  }$  $\text{\color{#ffffff} 6.26.26  }$
 <sp/>
 
 <div align="center">
