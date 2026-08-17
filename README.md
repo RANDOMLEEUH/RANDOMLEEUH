@@ -1,10 +1,25 @@
-> this is a **STUB** !! dont mind it . <br> check out my prn.cc , if you will ! 
+> $\text{\color{#FFE7E0}  ⁰¹ ੭﹕﹒  This is a Stub . Dont mind it !!   }$ <br> $\text{\color{#FFB4C9}     Check out my PRN.CC , if you will !   }$
 
-> feel very free to c*h ! (cuddle + hide ) <BR> i DON'T mind anything dynamic, or ship related ! <br> i ENJOY the company .
 
-> heavy subspace Fictionkin , kindoubles int freely . <br> 
+> $\text{\color{#FF3F9C}   ⁰² ꒱ feel very free to c*h ! (cuddle + hide )   }$ <br> $\text{\color{#FF7CBB}      　꒰ঌ 　◞   ྀི  i DON'T mind anything dynamic, or ship related !   }$ <br> $\text{\color{#FFB4C9}   ꒱  i ENJOY the company .   }$
+
+> $\text{\color{#FF7CBB}     ⁰³ ⊱  ۫ ׅ  heavy subspace Fictionkin , ◡◡  kindoubles int freely  !   }$
+<br>
+<img width="236" height="46" alt="f867ec7621aae34d3a4ba8bba53c7f12" src="https://github.com/user-attachments/assets/b719290a-d0e8-40e7-be7d-ba1782dec7e8" />
+
+<br><img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/7d9ee3fe-0de2-484e-98b5-c2ffa9b0abdb" />
+<img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/866df128-0745-47fd-83a4-fbe938b0bd83" />
+<br>
+<img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/0ce6d743-6b52-4429-b75a-e2964580536b" />
+<img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/fecfa796-47d3-42d9-9be5-6885a976ab50" />
+<img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/0db20c8c-16c8-459c-b519-59881f1706d3" />
+<img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/433ac93f-be8a-43cc-a36e-62cdb8c03204" />
+
+
 
 <br><br><br><br><br>
 
 <div align="center">
 <img width="735" height="469" alt="image" src="https://github.com/user-attachments/assets/9e1cf55f-6a96-432f-9e45-1bcf44d40328" />
+
+<sp><sp><sp> stamps by @craterdustcapital on tublr find themmm
