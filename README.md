@@ -1,6 +1,8 @@
-> this is a STUB ! dont mind it . <br> check out my prn.cc , if you will ! 
+> this is a **STUB** !! dont mind it . <br> check out my prn.cc , if you will ! 
 
 > feel very free to c*h ! (cuddle + hide ) <BR> i DON'T mind anything dynamic, or ship related ! <br> i ENJOY the company .
+
+> heavy subspace Fictionkin , kindoubles int freely . <br> 
 
 <br><br><br><br><br>
 
