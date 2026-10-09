@@ -2,6 +2,9 @@
 
 
 > $\text{\color{#FF3F9C}   ⁰² ꒱ feel very free to c*h ! (cuddle + hide )   }$ <br> $\text{\color{#FF7CBB}      　꒰ঌ 　◞   ྀི  i DON'T mind anything dynamic, or ship related !   }$ <br> $\text{\color{#FFB4C9}   ꒱  i ENJOY the company .   }$
+<br> $\text{\color{#FFB4C9}   ꒱  i ENJOY the company .   }$
+<br>
+$\text{\color{#FFB4C9}   ꒱  i ENJOY the company .   }$
 
 > $\text{\color{#FF7CBB}     ⁰³ ⊱  ۫ ׅ  heavy subspace Fictionkin , ◡◡  kindoubles int freely  !   }$
 <br>
