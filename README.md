@@ -4,6 +4,7 @@
 > $\text{\color{#FF3F9C}   ⁰² ꒱ feel very free to c*h ! (cuddle + hide )   }$ <br> $\text{\color{#FF7CBB}      　꒰ঌ 　◞   ྀི  i DON'T mind anything dynamic, or ship related !   }$ <br> $\text{\color{#FFB4C9}   ꒱  im very often offtab or doing stuff , but youre free to W2I !   }$
 
 > $\text{\color{#FF7CBB}     ⁰³ ⊱  ۫ ׅ   heavy subspace Fictionkin , ◡◡  kindoubles int freely  !   }$
+<br>
 > $\text{\color{#FF7CBB}     ◞  if i am under your DNI list, i won't hesitate to block !  ⊱  ۫ ׅ   }$
 
 <br>
