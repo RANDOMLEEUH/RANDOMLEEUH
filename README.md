@@ -29,7 +29,8 @@ $\text{\color{#FFB4C9}  ᭝ ᨳଓ ՟   }$
 <br><br><br><br><br>
 
 <div align="center">
-<img width="735" height="469" alt="image" src="https://github.com/user-attachments/assets/9e1cf55f-6a96-432f-9e45-1bcf44d40328" />
+<img width="1016" height="904" alt="image" src="https://github.com/user-attachments/assets/69c6b613-0b03-405c-98ee-7759f6e30df0" />
+
 
 <div align="left">
 <sub> stamps by @craterdustcapital on tublr find themmm
