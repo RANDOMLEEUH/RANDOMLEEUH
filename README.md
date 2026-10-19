@@ -3,9 +3,7 @@
 
 > $\text{\color{#FF3F9C}   ⁰² ꒱ feel very free to c*h ! (cuddle + hide )   }$ <br> $\text{\color{#FF7CBB}      　꒰ঌ 　◞   ྀི  i DON'T mind anything dynamic, or ship related !   }$ <br> $\text{\color{#FFB4C9}   ꒱  im very often offtab or doing stuff , but youre free to W2I !   }$
 
-> $\text{\color{#FF7CBB}     ⁰³ ⊱  ۫ ׅ   heavy subspace Fictionkin , ◡◡  kindoubles int freely  !   }$
-<br>
-> $\text{\color{#FF7CBB}     ◞  if i am under your DNI list, i won't hesitate to block !  ⊱  ۫ ׅ   }$
+> $\text{\color{#FF7CBB}     ⁰³ ⊱  ۫ ׅ   heavy subspace Fictionkin , ◡◡  kindoubles int freely  !   }$ <br>  $\text{\color{#FF3F9C}     　　　◞　if i am under your DNI list, i won't hesitate to block !　⊱  ۫ ׅ   }$
 
 <br>
 <img width="236" height="51" alt="f867ec7621aae34d3a4ba8bba53c7f12" src="https://github.com/user-attachments/assets/b719290a-d0e8-40e7-be7d-ba1782dec7e8" />
